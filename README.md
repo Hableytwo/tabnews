@@ -1,0 +1,1 @@
+Sobre estudar o tabnews
